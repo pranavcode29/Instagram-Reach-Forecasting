@@ -36,4 +36,5 @@ PRANAV BANSAL
 For any questions or feedback regarding this project, please reach out to:
 
 bansal.pra2000@gmail.com
+
 https://www.linkedin.com/in/pranavbansal0609
